@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421756609129877565/Tumblr_l_868530432687011.jpg?ex=68da3186&is=68d8e006&hm=2f313208a86f5db51b5f1d6868dc7c698b475f84c5df0cb51ab18e513bca9b76&=&format=webp&width=1862&height=334" alt="hi" />
+<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421888505830838342/Tumblr_l_888216410998043.jpg?ex=68daac5d&is=68d95add&hm=b2c82f826b6ca075aa2322ede5889303aadb60d0fb1088fb95118ce772c0e5ff&=&format=webp&width=1376&height=121" alt="hi" />
 
 
 <p align="center"> I'm the heavenly angel on your shoulder ♡ don't you trust me?
@@ -14,4 +14,4 @@
 <p align="center"> I LOVEEE cuddles I'm a cuddle bug >.O I would love to have anyone c+h me freely even if on rare occasions I have DNI, DNIUF, etc in my name. I'll also cuddle anyone that allows c+h :3 if I cuddled you at least once, then I'm more likely to come to you to cuddle than going to other people <3 
 
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421756608626557040/Tumblr_l_868528051193783.jpg?ex=68da3186&is=68d8e006&hm=92203fb0e45fa31591ee997c30d160947fc3e0310f1852cfa564fdfefa48bf23&=&format=webp&width=1862&height=334" alt="hi" />
+<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421888506204000276/Tumblr_l_888219031978667.jpg?ex=68daac5d&is=68d95add&hm=621718c9a9bc4f9a5fbc298194bf900b2c73ed49632cdb5c1b00868858b80fb4&=&format=webp&width=1376&height=127" alt="hi" />
