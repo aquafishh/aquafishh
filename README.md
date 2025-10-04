@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421888505830838342/Tumblr_l_888216410998043.jpg?ex=68daac5d&is=68d95add&hm=b2c82f826b6ca075aa2322ede5889303aadb60d0fb1088fb95118ce772c0e5ff&=&format=webp&width=1376&height=121" alt="hi" />
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1130370273263235253/1424104002345238538/Tumblr_l_148011209472495.jpg?ex=68e2bbb4&is=68e16a34&hm=3ab848b980f9aedc13ce4c6793e9b8596f64b78a099aa4b0af867e013fd8126c" alt="hi" />
 
 
 <p align="center"> I'm the angel on your shoulder ♡ don't you trust me?
