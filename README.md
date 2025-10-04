@@ -5,7 +5,7 @@
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421758020458909706/Tumblr_l_869000376762717.gif?ex=68da32d7&is=68d8e157&hm=f338434a3e8abeab1f025eb3ce6c8305191450b19935ef757417a835954cfc59&=&width=380&height=286" alt="hi" />
 
-<p align="center"> Hii I'm Cassy <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as LOL
+<p align="center"> Hii I'm Cassy <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as. I also adore being called Jubelian since shes from one of my top 5 favorite manhwas!! (Jubelian is from the mahwa: "Father, I Don't Want To Get Married")
 
 <p align="center"> I have ADHD, ASD (autism sensory disorder), and depression. I also suck really bad at getting certain things done if I'm not interested in it. I also tend to get "mothered" by most people IRL, since I come off as shy and timid O.O
 
