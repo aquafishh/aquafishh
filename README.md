@@ -3,7 +3,7 @@
 
 <p align="center"> I'm the angel on your shoulder ♡ don't you trust me?
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1411165575593332796/1421758020458909706/Tumblr_l_869000376762717.gif?ex=68da32d7&is=68d8e157&hm=f338434a3e8abeab1f025eb3ce6c8305191450b19935ef757417a835954cfc59&=&width=380&height=286" alt="hi" />
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1130370273263235253/1424103424668078280/Tumblr_l_147907443641805.gif?ex=68e2bb2b&is=68e169ab&hm=ec9f3cb2a0d2d0cf361c570b78af7da62b18c0987d4874c66d67bbc8d97bdc64" "https://cdn.discordapp.com/attachments/1130370273263235253/1424103657129119794/Tumblr_l_147972247757041.gif?ex=68e2bb62&is=68e169e2&hm=9aeb4db60ef067f103c29d2c043e5dc57f0ec8ef23fcf9dbb1a9dfcc31b38156" alt="hi" />
 
 <p align="center"> Hii I'm Cassy <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as. I also adore being called Jubelian since shes from one of my top 5 favorite manhwas!! (Jubelian is from the mahwa: "Father, I Don't Want To Get Married")
 
