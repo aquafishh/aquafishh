@@ -5,6 +5,8 @@
 
 <p align="center"> <img src="https://cdn.discordapp.com/attachments/1130370273263235253/1424104002345238538/Tumblr_l_148011209472495.jpg?ex=68e2bbb4&is=68e16a34&hm=3ab848b980f9aedc13ce4c6793e9b8596f64b78a099aa4b0af867e013fd8126c" alt="hi" />
 
+<p align="center"> #1 jubelian floyen stan (im her fr)
+
 <p align="center"> Hii I'm Jubelian <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as. My irl name is Cassidy but i go by Cassy (IDM if you use Cassy :33)
 
 <p align="center"> I have ADHD, ASD (autism sensory disorder), and depression. I also suck really bad at getting certain things done if I'm not interested in it. I also tend to get "mothered" by most people IRL, since I come off as shy and timid O.O
