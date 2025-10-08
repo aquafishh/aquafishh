@@ -11,6 +11,8 @@
 
 <p align="center"> I have ADHD and ASD (autism spectrum disorder). I also suck really bad at getting certain things done if I'm not interested in it. I also desperately need tonetags my brain cannot comprehend tone over text, I will try to understand but it's not 100% guaranteed I will know what tone you're using :"3
 
+<p align="center"> Pls pls PLEASEE let me know if I am doing anything wrong, like if I'm cosplaying a bad character or something. If I say anything insensitive or out of pocket, I neeeed to be notified of it. I have a hard time understanding social cues and reading the room.
+
 <p align="center"> I don't mind making new friends, it's just that I'm terribly bad at making conversations and extremely shy, if we share the same interests I'm more likely to yap more! If you're by any means uncomfortable, or just don't seem like we aren't a good fit to be friends, then you're always welcome to hide/block/etc me! I would want you to do whatever you feel comfortable, even if we are strangers <3
 
 <p align="center"> I LOVEEE cuddles I'm a cuddle bug >.O I would love to have anyone c+h me freely even if on rare occasions I have DNI, DNIUF, etc in my name. I'll also cuddle anyone that allows c+h :3 if I cuddled you at least once, then I'm more likely to come to you to cuddle than going to other people <3 
