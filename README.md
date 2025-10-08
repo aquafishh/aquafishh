@@ -7,9 +7,9 @@
 
 <p align="center"> #1 jubelian floyen stan (im her fr)
 
-<p align="center"> Hii I'm Jubelian <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as. My irl name is Cassidy but i go by Cassy (IDM if you use Cassy :33)
+<p align="center"> Hii I'm Jubelian <3 I'm a female and go by she/her but I honestly don't care what pronouns you use for me, or what gender you see me as. My irl name is Cassidy but i go by Cassy (IDM if you use Cassy :33). I'm a minor so no weird jokes unless we are friends ^_^
 
-<p align="center"> I have ADHD, ASD (autism spectrum disorder), and depression. I also suck really bad at getting certain things done if I'm not interested in it. I also tend to get "mothered" by most people IRL, since I come off as shy and timid O.O
+<p align="center"> I have ADHD and ASD (autism spectrum disorder). I also suck really bad at getting certain things done if I'm not interested in it. I also desperately need tonetags my brain cannot comprehend tone over text, I will try to understand but it's not 100% guaranteed I will know what tone you're using :"3
 
 <p align="center"> I don't mind making new friends, it's just that I'm terribly bad at making conversations and extremely shy, if we share the same interests I'm more likely to yap more! If you're by any means uncomfortable, or just don't seem like we aren't a good fit to be friends, then you're always welcome to hide/block/etc me! I would want you to do whatever you feel comfortable, even if we are strangers <3
 
