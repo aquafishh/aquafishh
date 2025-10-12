@@ -13,3 +13,7 @@
 <p align="center"> I love meeting new ppl but hate having low energy 2 where I can't talk to them >:[
 
 <p align="center"> DNI if you meet the basic crit like dummys and into weirdo things... ！Σ(×_×;)! block me atp ion wanna see you near me.......
+
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829902744653865/Tumblr_l_669200410016174.jpg?ex=68eca666&is=68eb54e6&hm=ced74d55727bd8e03f97ee87f98d79b7114c9b35dface582d1fc34b8a95455fb&" alt="hi" />
+
+<p align="center"> COLLECTION OF MY STUF B-LOW!
