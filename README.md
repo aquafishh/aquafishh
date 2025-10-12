@@ -22,4 +22,25 @@
 <p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844368457891/Tumblr_l_669180725622275.gif?ex=68eca658&is=68eb54d8&hm=67338d5ffd0c20a2d6b61668a058daaa715c3bbb9d30f3f43e1ba77b50958800&" alt="hi" />
 <p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829903059357807/Tumblr_l_669221215038718.gif?ex=68eca666&is=68eb54e6&hm=953f2cdbef12c9c621ba0d97e2ef4f3a95f94b13eab3c7d9a2308a3f02e18e6e&" alt="hi" />
 <p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829948982792322/Tumblr_l_669246233758136.gif?ex=68eca671&is=68eb54f1&hm=3d2b1a9a7ccc29bbd71c67fb36701a32524260c8a41de792fe5ea63be347bb3e&" alt="hi" />
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844682899616/Tumblr_l_669182857249254.gif?ex=68eca658&is=68eb54d8&hm=5470d666dd7c89a1eb7548ca14f2d2b34836f7a9e495b1ad848641ffa272a0be&" alt="hi" />
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844955533362/Tumblr_l_669183969634357.gif?ex=68eca658&is=68eb54d8&hm=e7596fc94d184f1d04388412ab16a768fdc060d8d53443bf7f58ee57cbdda012&" alt="hi" />
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829845270368266/Tumblr_l_669185088617847.jpg?ex=68eca658&is=68eb54d8&hm=7ea733564a1a60ff8291ae737f5b487b6fa1bfd0ef7bb5e7bd0a7bbbc6502f5c&" alt="hi" />
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829845559509083/Tumblr_l_669186210566023.gif?ex=68eca658&is=68eb54d8&hm=80ac2bd35ed509c9e13b43db4c474ee24b18e0dfd3e6be8b8d19d0bd7d75b125&" alt="hi" />
 <p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+<p align="left"> <img src="" alt="hi" />
+
+
+
+
+
+
+
+
+
+
+
