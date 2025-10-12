@@ -6,7 +6,7 @@
 
 <p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web fish: LEROFEY <3 I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
 
-<p align="center"> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
+<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829948584329216/Tumblr_l_669245233629542.gif?ex=68eca670&is=68eb54f0&hm=e15d72f2d274d909ca1935d416b121030f205179e85944bcf1f542fed12f8533&" alt="hi" /> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
 
 <p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾)
 
