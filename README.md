@@ -6,8 +6,10 @@
 
 <p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web angel: LEROFEY <3 I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
 
-<p align="center"> Frutiger Aero is my LYFE, I cannot live in this world without it >_<
+<p align="center"> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
 
-<p align="center"> I use all pronouns and genders and yadadadddadada!!!! (　＾Д＾)
+<p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾)
 
 <p align="center"> I love meeting new ppl but hate having low energy 2 where I can't talk to them >:[
+
+<p align="center"> DNI if you meet the basic crit like dummys and into weirdo things... ！Σ(×_×;)! block me atp ion wanna see you near me.......
