@@ -18,4 +18,4 @@
 
 <p align="center"> COLLECTION OF MY STUF B  LOW!
 </br> 
-<img src=""> <img src=""> <img src=""> <img src="">
+<img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844682899616/Tumblr_l_669182857249254.gif?ex=68eca658&is=68eb54d8&hm=5470d666dd7c89a1eb7548ca14f2d2b34836f7a9e495b1ad848641ffa272a0be&"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844955533362/Tumblr_l_669183969634357.gif?ex=68eca658&is=68eb54d8&hm=e7596fc94d184f1d04388412ab16a768fdc060d8d53443bf7f58ee57cbdda012&"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829845559509083/Tumblr_l_669186210566023.gif?ex=68eca658&is=68eb54d8&hm=80ac2bd35ed509c9e13b43db4c474ee24b18e0dfd3e6be8b8d19d0bd7d75b125&"> <img src="">
