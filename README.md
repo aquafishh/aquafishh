@@ -17,30 +17,5 @@
 <p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829902744653865/Tumblr_l_669200410016174.jpg?ex=68eca666&is=68eb54e6&hm=ced74d55727bd8e03f97ee87f98d79b7114c9b35dface582d1fc34b8a95455fb&" alt="hi" /> <p center <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829902744653865/Tumblr_l_669200410016174.jpg?ex=68eca666&is=68eb54e6&hm=ced74d55727bd8e03f97ee87f98d79b7114c9b35dface582d1fc34b8a95455fb&" alt="hi" />
 
 <p align="center"> COLLECTION OF MY STUF B  LOW!
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829843542183986/Tumblr_l_669177979621808.gif?ex=68eca657&is=68eb54d7&hm=66ffab1685ca7a1717a00d3bf7baf2e3a3c3ce5d586630563302795fa5b809c3&" alt="hi" /> 
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829843894632598/Tumblr_l_669179458018526.gif?ex=68eca658&is=68eb54d8&hm=108de63fd67939821aa613faaa18d874a5e003c8b6d90672c9448138585b2076&" alt="hi" /> 
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844368457891/Tumblr_l_669180725622275.gif?ex=68eca658&is=68eb54d8&hm=67338d5ffd0c20a2d6b61668a058daaa715c3bbb9d30f3f43e1ba77b50958800&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829903059357807/Tumblr_l_669221215038718.gif?ex=68eca666&is=68eb54e6&hm=953f2cdbef12c9c621ba0d97e2ef4f3a95f94b13eab3c7d9a2308a3f02e18e6e&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829948982792322/Tumblr_l_669246233758136.gif?ex=68eca671&is=68eb54f1&hm=3d2b1a9a7ccc29bbd71c67fb36701a32524260c8a41de792fe5ea63be347bb3e&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844682899616/Tumblr_l_669182857249254.gif?ex=68eca658&is=68eb54d8&hm=5470d666dd7c89a1eb7548ca14f2d2b34836f7a9e495b1ad848641ffa272a0be&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829844955533362/Tumblr_l_669183969634357.gif?ex=68eca658&is=68eb54d8&hm=e7596fc94d184f1d04388412ab16a768fdc060d8d53443bf7f58ee57cbdda012&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829845270368266/Tumblr_l_669185088617847.jpg?ex=68eca658&is=68eb54d8&hm=7ea733564a1a60ff8291ae737f5b487b6fa1bfd0ef7bb5e7bd0a7bbbc6502f5c&" alt="hi" />
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829845559509083/Tumblr_l_669186210566023.gif?ex=68eca658&is=68eb54d8&hm=80ac2bd35ed509c9e13b43db4c474ee24b18e0dfd3e6be8b8d19d0bd7d75b125&" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-<p align="left"> <img src="" alt="hi" />
-
-
-
-
-
-
-
-
-
-
-
+</br> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3d45c08b-4542-4268-bb70-2194b4ff5dac/dfv8rrw-ec0d8ec2-9275-44e6-8f22-f293cfbc37d7.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNkNDVjMDhiLTQ1NDItNDI2OC1iYjcwLTIxOTRiNGZmNWRhY1wvZGZ2OHJydy1lYzBkOGVjMi05Mjc1LTQ0ZTYtOGYyMi1mMjkzY2ZiYzM3ZDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.iqNaOju1Wz-4oGAFKkW-fC_22Bfiiq55anbmZ9uVF9Q">
+</br> 
