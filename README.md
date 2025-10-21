@@ -16,6 +16,7 @@
 
 <p align="center"> my interests r clinic of horrors, alien stage, monster high, manhwas (ex. how to survive as a maid in a horror game), jo_sipu (balvenie), vocaloid, ddlc, umamusume, vrchat, reverse 1999, toram online, madoka exedra, cardcaptor sakura, etc
 
+<p align="center"> hi guys the images b low dont work so ill fix it soon trust
 <p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829902744653865/Tumblr_l_669200410016174.jpg?ex=68eca666&is=68eb54e6&hm=ced74d55727bd8e03f97ee87f98d79b7114c9b35dface582d1fc34b8a95455fb&" alt="hi" /> <p center <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829902744653865/Tumblr_l_669200410016174.jpg?ex=68eca666&is=68eb54e6&hm=ced74d55727bd8e03f97ee87f98d79b7114c9b35dface582d1fc34b8a95455fb&" alt="hi" />
 
 <p align="center"> COLLECTION AQUARIUM
