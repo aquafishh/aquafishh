@@ -16,7 +16,7 @@
 
 <p align="center"> DNI if you meet the basic crit like dummys and into weirdo things... ！Σ(×_×;)! block me atp ion wanna see you near me.......
 
-<p align="center"> my interests r clinic of horrors, alien stage, needy streamer overload, deadplate, monster high, manhwas (ex. how to survive as a maid in a horror game), jo_sipu (balvenie), vocaloid, ddlc, umamusume, vrchat, reverse 1999, toram online, madoka exedra, cardcaptor sakura, etc
+<p align="center"> my interests r clinic of horrors, alien stage, needy streamer overload, deadplate, monster high, manhwas (ex. how to survive as a maid in a horror game), jo_sipu (balvenie), vocaloid, ddlc, umamusume, vrchat, reverse 1999, toram online, madoka exedra, cardcaptor sakura, sailor moon, duet night abyss, persona 5, vrchat, tribe nine, aznana, schoolgirls simulator, etc
 
 <p align="center"> COLLECTION AQUARIUM ( ˃` ⩌ ´˂ )
 
