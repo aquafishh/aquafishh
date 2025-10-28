@@ -12,7 +12,7 @@
 
 <p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾)
 
-<p align="center"> I love meeting new ppl but hate having low energy 2 where I can't talk to them >:[
+<p align="center"> I love meeting new ppl but hate having low energy 2 where I can't talk to them >:[ I LUV cuddlez i will always allow c+h PLZ CUDDLE ME??!?!?!?!? ><
 
 <p align="center"> DNI if you meet the basic crit like dummys and into weirdo things... ！Σ(×_×;)! block me atp ion wanna see you near me.......
 
