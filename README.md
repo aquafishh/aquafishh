@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/X7P9NtVj/divider.gif" alt="hi" /> 
 
-<p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web fish: LEROFEY <3 I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
+<p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web fish: LEROFEY <3 (I sometimes use Jaight too!!! Pronounced like "j - ate" Shorter ver of Jaight is J8) I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
 
 <p align="center"> <img src="https://i.postimg.cc/Y9VtLNjS/ezgif-com-animated-gif-maker-14.gif">
   
