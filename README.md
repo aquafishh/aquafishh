@@ -2,7 +2,7 @@
 
 <p align="left"> <img src="https://i.postimg.cc/JnyL8yK1/Tumblr-l-669258079203131.gif" alt="hi" /> A reminder 2 B yourself and screw others!!!! This lyfe is yours, so do whatever!!! YOUR INTERESTS ARE YOURS 2 LIKE AND DISLIKE, DONT LISTEN 2 BORING PPL!!!!!!!!!  ( ＾ω＾ )
 
-<p align="left"> <img src="https://i.postimg.cc/X7P9NtVj/divider.gif" alt="hi" /> 
+<p align="center"> <img src="https://i.postimg.cc/X7P9NtVj/divider.gif" alt="hi" /> 
 
 <p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web fish: LEROFEY <3 I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
 
