@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426837691869298769/Tumblr_l_673404088876237.jpg?ex=68ecada7&is=68eb5c27&hm=472747c4909ff292ebff088633fcc8a5b2f5b5e3cfb03b3e9a17510959630a6e&" alt="hi" />
+<p align="center"> <img src="https://i.postimg.cc/J0mPqvsS/Tumblr-l-262320225895660.jpg" alt="hi" />
 
 <p align="left"> <img src="https://i.postimg.cc/JnyL8yK1/Tumblr-l-669258079203131.gif" alt="hi" /> A reminder 2 B yourself and screw others!!!! This lyfe is yours, so do whatever!!! YOUR INTERESTS ARE YOURS 2 LIKE AND DISLIKE, DONT LISTEN 2 BORING PPL!!!!!!!!!  ( ＾ω＾ )
 
@@ -6,7 +6,7 @@
 
 <p align="center"> Hai stinkers (゜ロ゜) This is your ultimate internet web fish: LEROFEY <3 I love 2 partay and yap and B sillay!! A/S/L is 15/any/your walls 0.0
 
-<p align="left"> <img src="https://cdn.discordapp.com/attachments/1249282295094054984/1426829948584329216/Tumblr_l_669245233629542.gif?ex=68eca670&is=68eb54f0&hm=e15d72f2d274d909ca1935d416b121030f205179e85944bcf1f542fed12f8533&" alt="hi" /> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
+<p align="left"> <img src="https://i.postimg.cc/kgkNszzC/Tumblr-l-669245233629542.gif" alt="hi" /> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
 
 <p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾)
 
@@ -21,4 +21,4 @@
 
 
 
-<p align="center"> <img src=https://cdn.discordapp.com/attachments/1249282295094054984/1426829989503828008/Tumblr_l_669250453675999.gif?ex=68eca67a&is=68eb54fa&hm=56c5bdbc2e0be865bc5a020668e86f790f85eb4590522c359cb9bf2aff8d7f0a&">
+<p align="center"> <img src="https://i.postimg.cc/CxdJmjKD/Tumblr-l-262325190817481.jpg">
