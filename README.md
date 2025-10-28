@@ -18,7 +18,7 @@
 
 <p align="center"> my interests r clinic of horrors, alien stage, needy streamer overload, deadplate, monster high, manhwas (ex. how to survive as a maid in a horror game), jo_sipu (balvenie), vocaloid, ddlc, umamusume, vrchat, reverse 1999, toram online, madoka exedra, cardcaptor sakura, etc
 
-<p align="center"> hi guys the images b low dont work so ill fix it soon trust
+<p align="center"> COLLECTION AQUARIUM ( ˃` ⩌ ´˂ )
 
 
 <p align="center"> <img src="https://i.postimg.cc/CxdJmjKD/Tumblr-l-262325190817481.jpg">
