@@ -10,7 +10,7 @@
   
 <p align="center"> <img src="https://i.postimg.cc/kgkNszzC/Tumblr-l-669245233629542.gif" alt="hi" /> Frutiger Aero is my LYFE, I cannot live in this world without it >_< my ☆ALL-TIME☆ AESTHETIC!
 
-<p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾)
+<p align="center"> I use all pronouns and genders and yadadadddadada!!!! I am everything and nothing!!!! (　＾Д＾) I am demisexual and pansexual....
 
 <p align="center"> I love meeting new ppl but hate having low energy 2 where I can't talk to them >:[ I LUV cuddlez i will always allow c+h PLZ CUDDLE ME??!?!?!?!? ><
 
